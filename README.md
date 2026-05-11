@@ -31,7 +31,7 @@ I’m eager to learn and grow, with a keen interest in how technology shapes our
 ---
 
 ## 💼 Experience
-- **Intern — Machapuchre Bank Limited** _(Aug 2025 – Present)_  
+- **Intern — Machapuchre Bank Limited** _(August 2025 – November 2025)_  
   IT Tech Support and On-site Learning.
 
 ---
